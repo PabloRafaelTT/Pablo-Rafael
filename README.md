@@ -1,2 +1,0 @@
-# Pablo-Rafael
-Sobre mim
